@@ -5,9 +5,9 @@
 - 💞️ I’m looking to make more meaningful social connections and intractions(I'm an introvert tho)
 - 📫 How to reach me -mail:aashikpradeep@gmail.com
 
-     Reach me through [face book](facebook.com/ashik.pradeep.7 ).
+     Reach me through [face book](https://www.facebook.com/ashik.pradeep.7 ).
      
-    Reach me through [LinkedIn](linkedin.com/in/aashikpradeep ).
+    Reach me through [LinkedIn](https://www.linkedin.com/in/aashikpradeep/).
     
  planning to start an insta account soon...
               
